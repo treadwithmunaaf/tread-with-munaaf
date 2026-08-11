@@ -1,1 +1,0 @@
-isse baad me 
